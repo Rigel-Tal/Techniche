@@ -1,2 +1,0 @@
-# Techniche
-Techniche Competition
